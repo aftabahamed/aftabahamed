@@ -1,6 +1,4 @@
-### Hi there 👋
-
-Welcome to my GitHub profile.
+### Learner & Tech Enthusiast ! 👨🏻‍💻
 
 <br/>
 <div align="center">
